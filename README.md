@@ -1,6 +1,6 @@
 ● Hi, I'm **Vivekkannan**
 
-● ![Vivekkannan]([image.jpg](https://github.com/Vivekkannan197/Vivek/blob/main/new%20photo.jpg?raw=true)) 
+● ![Vivek](https://github.com/Vivekkannan197/Vivek/blob/main/new%20photo.jpg?raw=true)
 
 ● I'm interested in..... 
 
